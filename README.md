@@ -1,0 +1,1 @@
+# fancyhotel.github.io
